@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning ... about owning alligators as pets
 - 💞️ I’m looking to collaborate on ... snake wrangling
 - 📫 How to reach me ... im in the swamps
-- 😄 Pronouns: ... Lets/Party
+- 😄 Pronouns: ... 
 - ⚡ Fun fact: ... All gas no brakes
 
 <!---
